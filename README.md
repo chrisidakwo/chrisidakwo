@@ -8,7 +8,7 @@ Before you is a mere mortal with an unhealthy knack for growth, and loves being 
 > :sparkles: *I'm divine, baby!* :sparkles:
 
 
-:dart: Deeply passionate about building top-notch usable products. I'm on a mission, just getting started. Catch me if you can!
+:dart: Deeply passionate about building usable products. I'm on a mission, just getting started. Catch me if you can!
 
 📫 Probably the most "down-to-earth" mortal, so ask me about anything! Or mail me [chris.idakwo@gmail.com](mailto:chris.idakwo@gmail.com)
 
