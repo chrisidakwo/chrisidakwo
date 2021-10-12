@@ -1,16 +1,12 @@
 ### Hey human 👋, 
 
-Before you is a mere mortal with an unhealthy knack for growth, and loves being around people and workplaces that are very intentional about it!
- I'm a whole species, a rare kind. One of those that strongly believe I have a whole more to offer than writing codes.
+I have an unhealthy knack for simplicity and growth. I love working with people and teams that are very intentional about these!
 
 :alien: Half human, half robot, half spirit. 
 
-> :sparkles: *I'm divine, baby!* :sparkles:
-
-
 :dart: Deeply passionate about building usable products. I'm on a mission, just getting started. Catch me if you can!
 
-📫 Probably the most "down-to-earth" mortal, so ask me about anything! Or mail me [chris.idakwo@gmail.com](mailto:chris.idakwo@gmail.com)
+📫 Ask me anything: [chris.idakwo@gmail.com](mailto:chris.idakwo@gmail.com)
 
 <hr/>
 
