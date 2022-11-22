@@ -18,7 +18,6 @@ I have an unhealthy knack for simplicity and growth. I love working with people 
 <hr/>
 
 ## Stats 📑
-I don't go Github that much
 
 ![Visitors](https://visitor-badge.glitch.me/badge?page_id=chrisidakwo.chrisidakwo) 
 ![GitHub Followers](https://img.shields.io/github/followers/chrisidakwo?label=Follow&logo=Github&style=social)
